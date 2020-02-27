@@ -1,3 +1,3 @@
 # About Me
 
-🤔 Be Curious.
+👋🏻 https://wellyshen.netlify.com
